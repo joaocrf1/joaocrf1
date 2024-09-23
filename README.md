@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @joaocrf1
 - 👀 I’m interested in Futebol
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning desenvolvimento web
 - 💞️ I’m looking to collaborate on aprender mais
-- 📫 How to reach me ...
+- 📫 How to reach me https://www.instagram.com/jvcrf1/
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
 
